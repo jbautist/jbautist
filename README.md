@@ -1,1 +1,1 @@
-![](https://github.com/jbautist/jbautist/blob/main/code-profile.png)
+![](https://github.com/jbautist/jbautist/blob/main/profile-code.png)
